@@ -10,3 +10,5 @@ Me entretiene aprender cosas nuevas, escuchar música o podcasts, coleccionar pl
 Como no estoy muy familiarizada con varios conceptos o con el uso de algunas herramientas de la planificación de la materia, veo positivo que vaya a aprender bastante, tanto de la clase en sí como de mis compañeros. 
 
 ###### gracias por leer :)
+
+![El Nano](https://github.com/pdep-utn-frd/2024-presentacion-IaraSica/blob/main/giphy.alonso.gif)
